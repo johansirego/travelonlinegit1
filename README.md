@@ -1,1 +1,1 @@
-**Created by: [Dean Jasper Zamora]** 
+**Contributor: [Dean Jasper Zamora]** 
