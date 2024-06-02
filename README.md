@@ -1,2 +1,3 @@
 **Contributor: [Princess Garcia]** 
-**Contributor: [Garry Bustamante]** 
+**Contributor: [Garry Bustamante]**
+**Contributor: [Simon Pineda]** 
