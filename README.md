@@ -1,4 +1,4 @@
 **Contributor: [Princess Garcia]** 
 **Contributor: [Garry Bustamante]**
 **Contributor: [Simon Pineda]**
-**Contributor: [Peter Sarmiento]** 
+**Contributor: [Peter Gabriel Sarmiento]** 
